@@ -7,5 +7,5 @@
 
 
 
-Meu sonho é me tornar um desenvolvedor, programador e uma inspiração para nova geração
-Acima de tudo, quero orgulhar minha mãe e minha familia, darei o meu melhor para isso :´D
+- 🥀 Meu sonho é me tornar um desenvolvedor, programador e uma inspiração para nova geração
+- 🍃 Acima de tudo, quero orgulhar minha mãe e minha familia, darei o meu melhor para isso :´D
